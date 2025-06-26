@@ -1,0 +1,1 @@
+Curated shots, Elevated style
